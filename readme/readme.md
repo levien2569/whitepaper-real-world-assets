@@ -1,1 +1,0 @@
-#whitepaper-real-world-assets
